@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gigirhmn
+- 🧍🏻‍♀️ My real name is Ghazal Rahman
+- 👀 I’m interested in watching the Raptors and coding
+- 🌱 I’m currently studying Computer Security
+- 📫 How to reach me: gigi.rhmn1@gmail.com
